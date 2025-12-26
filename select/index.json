@@ -1,0 +1,16 @@
+{
+  "version": 1,
+  "base_track": "PS118（feat. Rapsody）",
+  "base_artist": "JURIN ASAYA",
+  "createdAt": "2025-12-26T16:08:34.472299Z",
+  "candidates": [
+    {
+      "id": "petitlyrics_1",
+      "source": "petitlyrics",
+      "title": "PS118 (feat. Rapsody)",
+      "artist": "JURIN ASAYA",
+      "has_synced": false,
+      "path": "select/pl_01_PS118_(feat._Rapsody)_JURIN_ASAYA.txt"
+    }
+  ]
+}
