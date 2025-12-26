@@ -1,0 +1,108 @@
+# JURIN ASAYA – PS118（feat. Rapsody）
+
+> **歌詞登録ステータス：プレーン歌詞のみ**
+
+```
+Aight lemme talk to 'em
+Destination out of this world
+It's space travel
+New heights I'm seeing new lights
+I change levels
+More space this race an exhibition
+XG on an expedition
+Light speed go the extra distance
+Shooting stars so when you blink
+Then I bet you miss it
+I want the galaxy baby
+You want the recognition
+Everything is moving the way that I plan it
+I'm cutting transmission yeah
+Make the planets shift wit my gift
+I'm an alien
+Birthed by the sun See the skin on me radiant
+Everything I spit is for absorption in your
+cranium
+Surface level rap
+I ain't never been as lame as them
+Grammy ray rap
+Put light to the mic yeah
+Distance between me and them
+I'm a light year
+5.88 trillion miles off 'em
+Still send directions back home
+For the lost ones
+Proceed with caution
+'Cause the G's could make you nauseous
+XG's a group of Martians
+You know when I rocket
+You get blasted in the process
+No nonsense
+And they know that the flow cosmic
+You rap or not?
+I'm just floating on a track
+Like an astronaut
+And I'm dunking on your planet when I pass the
+rock
+I gotta vision when I drop it
+So you gotta listen
+Makin' a movie like Apollo missions
+Know what it cost me
+Know what it cost us
+Gotta bring the heat
+This a Big Bang process
+Culmination reached
+They seeing a meridian
+I get around like Pac I be traveling
+They don't want no Star Wars
+They don't want to battle with a quasar
+Send 'em black hole that's a favor
+Frequency high
+They don't even cross my radar
+Impact looking like the moon
+All these craters
+Travel too close to the glow
+That's where the rays are
+You set the bar too low
+That's why we raise ours
+7 dots on your screen
+Like stars gotta claim ours
+I just do what I do
+And our dues yo we paid ours
+Oxygen level low
+Vapors is all I'm breathing in
+Had to hit up Rapsody
+The queen no bohemian
+8 bars pass off with ease so convenient
+I see the play Earth is feeling crowded
+So I needed space
+Get off my wave
+Get off my wave
+Volatile don't follow rules
+I don't behave
+From my thoughts to my style
+Sharper than a blade
+I'm a different type of grade
+And I meant that with shade
+Anointed by the Cosmo
+You can't relate so
+Get off my wave
+Get off my wave
+Get off my wave let me be
+This is higher intellect
+From an legend MC rap
+Everytime I go in I feel anointed
+I'm like Christopher Nolan on a Neumann
+The way I push it back to the limit
+Seems like I'm double jointed
+I been appointed my employment
+Is recording these tracks
+Just for your enjoyment
+I'm excited hope you feel the raps
+Punching like Tyson is science
+I'm Neil de grass
+Spaced out but I'm grounded
+Like I'm near the grass
+Do this with a passion you see the flash
+I write like fire fighters
+I fill the draft
+```
